@@ -1,0 +1,5 @@
+![WhatsApp Image 2024-04-17 at 3 50 31 PM](https://github.com/whoisdevraj/Basic_Math_Neural_Network/assets/119786618/55d48650-c892-46ba-87ac-8c5fd87fcee4)
+![WhatsApp Image 2024-04-17 at 3 50 32 PM](https://github.com/whoisdevraj/Basic_Math_Neural_Network/assets/119786618/228210a5-4251-4fd4-908d-3de9cb3b101e)
+![WhatsApp Image 2024-04-17 at 3 50 32 PM (1)](https://github.com/whoisdevraj/Basic_Math_Neural_Network/assets/119786618/ba3cd209-c399-42c7-af57-9ad9b1d64dea)
+![WhatsApp Image 2024-04-17 at 3 50 32 PM (2)](https://github.com/whoisdevraj/Basic_Math_Neural_Network/assets/119786618/334a51b7-ad88-4ab0-83f4-926852368e58)
+![WhatsApp Image 2024-04-17 at 3 50 33 PM](https://github.com/whoisdevraj/Basic_Math_Neural_Network/assets/119786618/4c53a343-69a7-496a-b10d-04f1e2b10fc3)
